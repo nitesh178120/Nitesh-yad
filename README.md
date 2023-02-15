@@ -1,2 +1,2 @@
 # Nitesh-yad
-my name is niotesh yadav
+my name is nitesh yadav
